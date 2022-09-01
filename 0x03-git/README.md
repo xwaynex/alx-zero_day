@@ -1,1 +1,1 @@
-The babe is coming
+Bitch better hate my money
